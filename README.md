@@ -6,7 +6,13 @@
 
 <p align="center">------------------------------------------------------------------------------</p>
 
-<p align="center">I don't currently have the motivation to make a real repository here yet. The one I made on my CRK account took all my brain juice. And then a bunch of shit happened that makes it really hard to get through each day without a shit ton of distractions, including youtube videos, people-watching while afk-ing on ponytown, listening to music, playing CRK, and trying to make friends on the pony app.</p>
+<p align="center">Hobbies include watching youtube videos, people-watching while afk-ing on ponytown, listening to music, playing CRK, playing HSR, and trying to make friends on the pony app.</p>
+
+<p align="center">BYI: don't be weirdly sexual to me or my skins, I'm still recovering from a breakup (with someone I adored and did not want to end things with) and hate shallow shit,</p>
+
+<p align="center">if I'm sitting alone and my boundaries don't disclude you (e.g. if you're in the same fandom as my skin and/or you would like to sit as a ship I don't hate) PLEASE keep me company please please please I'm lonely and love cuddles and I would never bite someone who affords me that kind of simple platonic affection,</p>
+
+<p align="center">if I'm sitting with friends I probably won't move so anyone who wants to chat me will have to whisper (or just walk up and talk to me if I happen to not be afk idc)</p>
 
 <p align="center">The actually nice looking (and CRK themed) repository is 
 <a href="https://www.github.com/lonelybluebird">here</a>
