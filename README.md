@@ -4,6 +4,6 @@
 
 <p align="center">I don't currently have the motivation to make a real repository here yet. The one I made on my CRK account took all my brain juice. And then a bunch of shit happened that makes it really hard to get through each day without a shit ton of distractions, including youtube videos, people-watching while afk-ing on ponytown, listening to music, playing CRK, and trying to make friends on the pony app.</p>
 
-<p align="center">The actually nice looking repository is 
+<p align="center">The actually nice looking (and CRK themed) repository is 
 <a href="https://www.github.com/lonelybluebird">here</a>
 </p>
