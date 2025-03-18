@@ -6,7 +6,7 @@
 
 <p align="center">------------------------------------------------------------------------------</p>
 
-<p align="center">Hobbies include watching youtube videos, people-watching while afk-ing on ponytown, listening to music, playing CRK, playing HSR, and trying to make friends on the pony app.</p>
+<p align="center">Hobbies include watching youtube videos, people-watching while sitting on ponytown, listening to music, playing CRK, playing HSR, and trying to make friends on the pony app.</p>
 
 <p align="center">BYI: don't be weirdly sexual to me or my skins, I'm still recovering from a breakup (with someone I adored and did not want to end things with) and hate shallow shit,</p>
 
