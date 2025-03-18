@@ -4,7 +4,9 @@
 
 <h3 align="center">Did you at least kiss the brick before throwing it at me</h3>
 
-<p align="center">------------------------------------------------------------------------------</p>
+<div align="center">
+  <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
+</div>
 
 <p align="center">Hobbies include watching youtube videos, people-watching while sitting on ponytown, listening to music, playing CRK, playing HSR, and trying to make friends on the pony app.</p>
 
