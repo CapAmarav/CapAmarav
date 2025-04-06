@@ -21,7 +21,6 @@
 </p>
 
 ![1743965765013436817178195143063](https://github.com/user-attachments/assets/a6630817-a78d-4544-a8e6-8a948a4c90a1)
-
 <div align="center">
   <img src="https://64.media.tumblr.com/484468f9193805f8add74dd6c47a7926/42c48bd6dd080535-a2/s2048x3072/f7bf8b3c81761abb993b7475c776d7d947c73e0c.pnj">
 </div>
