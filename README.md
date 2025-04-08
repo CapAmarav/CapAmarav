@@ -10,7 +10,7 @@
 
 <p align="center">Hobbies include watching youtube videos, listening to music, people-watching while sitting on ponytown, making skins on ponytown, playing CRK, and trying to make friends on the pony app.</p>
 
-<p align="center">BYI: don't be weirdly sexual to me or my skins or assume any ships with me, I'd rather devote time to the OC of the one person I care most about.</p>
+<p align="center">BYI: don't be weirdly sexual to me or my skins or assume any ships with me, I'd rather devote time to myself or my best friend's oc.</p>
 
 <p align="center">if I'm sitting alone and my boundaries don't disclude you (e.g. if you're in the same fandom as my skin and/or you would like to sit as a ship I don't hate) PLEASE keep me company please please please I'm lonely and love cuddles and I would never bite someone who affords me that kind of simple platonic affection (friends and acquaintances get first priority, strangers please ask to sit with me before doing so since I attract weirdos and freaks sometimes 😭),</p>
 
