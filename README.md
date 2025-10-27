@@ -2,13 +2,14 @@
   <img src="https://64.media.tumblr.com/43f6f6c2a1aedea3198f971ba73e2893/741d6bf6364cc704-ff/s400x600/3c90436b7f2152e2bd511beabc8bc6f0f6d2e9a1.gifv">
 </div>
 
-<h3 align="center">EᴍᴇʀᴀʟᴅDᴜᴏ Sᴜᴘʀᴇᴍᴀᴄʏ</h3>
+
+<h3 align="center">𝖘𝖊𝖛𝖊𝖓 𝖒𝖎𝖓𝖚𝖙𝖊 𝖘𝖔𝖓𝖌</h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
 </div>
 
-<p align="center">Hobbies include watching youtube videos, listening to music, writing down fanfiction ideas, playing minecraft (origins adventure smp♡), people-watching while sitting on ponytown, making skins on ponytown, and trying to make friends on the pony app.</p>
+<p align="center">Hobbies include watching youtube videos, listening to music, writing down fanfiction ideas, playing genshin, people-watching while sitting on ponytown, making skins on ponytown, and trying to make friends on the pony app.</p>
 
 <p align="center">BYI: don't be weirdly sexual to me or my skins or assume any ships with me.</p>
 
