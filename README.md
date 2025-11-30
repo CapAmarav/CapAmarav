@@ -7,7 +7,7 @@
   <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
 </div>
 
-<p align="center">Hobbies include watching youtube videos, listening to music, writing down fanfiction ideas, playing genshin, people-watching while sitting on ponytown, making skins on ponytown, and trying to make friends on the pony app.</p>
+<p align="center">Hobbies include watching youtube videos, listening to music, playing HSR, writing fic ideas, people-watching while sitting on ponytown, making skins on ponytown, and trying to make friends on the pony app.</p>
 
 <p align="center">BYI: don't be weirdly sexual to me or my skins or assume any ships with me.</p>
 
