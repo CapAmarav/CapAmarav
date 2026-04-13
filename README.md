@@ -7,9 +7,9 @@
   <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
 </div>
 
-<p align="center">Hobbies include watching youtube videos, listening to music, playing genshin and minecraft, writing fic ideas, people-watching while sitting on ponytown, making skins on ponytown, and trying to make friends on the pony app.</p>
+<p align="center">Hobbies include watching youtube videos, listening to music, playing minecraft, writing fic ideas, people-watching while sitting on ponytown, making skins on ponytown, and trying to make friends on the pony app.</p>
 
-<p align="center">People can enjoy aspects of a problematic piece of media without supporting the whole thing or the people behind it. I thought this was common sense. Hoyoverse is the only fanbase where I've gotten cussed out over ships I dislike. DSMP is full of parasocial kids who take sides in an argument they know very little about. Hazbin haters are more vocal than the fans? Like can we not agree it's entertaining and a good chunk of the music is fire</p>
+<p align="center">People can enjoy aspects of a problematic piece of media without supporting the whole thing or the people behind it. I thought this was common sense. Hoyoverse is the only fanbase where I've gotten cussed out over ships I dislike. DSMP is full of parasocial kids who start pointless drama over experiences they can curate for themselves. Hazbin haters are more vocal than the fans? Like can we not agree it's entertaining and a good chunk of the music is fire</p>
 
 <p align="center">if I'm sitting alone and my boundaries don't disclude you (e.g. if you're in the same fandom as my skin and/or you would like to sit as a ship I don't hate) PLEASE keep me company please please please I'm lonely and love cuddles and I would never bite someone who affords me that kind of simple platonic affection (friends and acquaintances get first priority, strangers please ask to sit with me unless I have open c+h before doing so since I attract weirdos and freaks sometimes 😭),</p>
 
