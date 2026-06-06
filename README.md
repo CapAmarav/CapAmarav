@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/de51ce01d8765070551a70cba48a3c9c/71ad91bac8769506-1d/s1280x1920/2a023f49680ecd45c9ae443afa4bb4bd63af36a2.gifv">
+  <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
 </div>
 <h3 align="center">𝖘𝖊𝖛𝖊𝖓 𝖒𝖎𝖓𝖚𝖙𝖊 𝖘𝖔𝖓𝖌</h3>
 
