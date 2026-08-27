@@ -17,7 +17,7 @@
 
 <p align="center">Hobbies include watching youtube videos, listening to music, playing sky:cotl, playing genshin, brainstorming headcanons and scenarios for my favorite dynamics, people-watching while sitting on ponytown, editing skins on ponytown, and sitting with friends on the pony app.</p>
 
-<p align="center">People can enjoy aspects of a problematic piece of media or media with problematic creators without supporting the whole thing or the people behind it. I thought this was common sense.</p>
+<p align="center">People can enjoy aspects of a problematic piece of media or media with problematic creators without supporting the whole thing or the people behind it. I thought this was common sense. I thought not idolizing creators you know barely anything about was the fucking baseline.</p>
 
 <p align="center">if I'm sitting alone and my boundaries don't disclude you, e.g. if you're in the same fandom as my skin and/or you would like to sit as a duo I don't hate (DO NOT assume ships with me please), PLEASE keep me company please please please I'm lonely and love cuddles and I would never bite someone who affords me that kind of simple platonic affection (friends and acquaintances get first priority, strangers please ask to sit with me unless I have open c+h before doing so since I attract weirdos and freaks sometimes 😭)</p>
 
