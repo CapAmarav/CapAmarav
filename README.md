@@ -1,13 +1,17 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
 </div>
-<h3 align="center">𝖘𝖊𝖛𝖊𝖓 𝖒𝖎𝖓𝖚𝖙𝖊 𝖘𝖔𝖓𝖌</h3>
+<h3 align="center">​🇮​​🇳​​🇰​​🇵​​🇴​​🇹​ ​🇬​​🇴​​🇩​​🇸​</h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
 </div>
 
 <p align="center"><I>If I'm sitting with Misia do not bother me, do not speak to me in public chat or boop me or walk on me, if Misia is with me I will be focusing on them and don't want interruptions.</I></p>
+
+***
+
+<p align="center">If you assume a family dynamic with my philza skins and are NOT Misia (the only kid I actually feel like the dad of), kindly <I>fuck off!</I> I hate c!SBI (<I>not real btw bc it was the cc's not characters</I>) bc techno is VERY NOT RELATED to philza at all and I see c!emeraldduo as queerplatonic. They are old friends and immortals and I am not interested in going against my own boundaries for a stranger. (also I hate wilbur for constantly pushing said dynamic to the point that even techno had to make a statement saying c!emduo was canonically old friends and not related)</p>
 
 ***
 
