@@ -1,7 +1,7 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
 </div>
-<h3 align="center">​🇮​​🇳​​🇰​​🇵​​🇴​​🇹​ ​🇬​​🇴​​🇩​​🇸​</h3>
+<h3 align="center">ɪɴᴋᴘᴏᴛ ɢᴏᴅꜱ - ᴛʜᴇ ᴀᴍᴀᴢɪɴɢ ᴅᴇᴠɪʟ</h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
