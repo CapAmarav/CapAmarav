@@ -7,13 +7,19 @@
   <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
 </div>
 
-<p align="center">Hobbies include watching youtube videos, listening to music, playing sky:cotl, writing fic ideas, people-watching while sitting on ponytown, editing skins on ponytown, and sitting with friends on the pony app.</p>
+<p align="center"><I>If I'm sitting with Misia do not bother me, do not speak to me in public chat or boop me or walk on me, if Misia is with me I will be focusing on them and don't want interruptions.</I></p>
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
+</div>
+
+<p align="center">Hobbies include watching youtube videos, listening to music, playing sky:cotl, playing genshin, brainstorming headcanons and scenarios for my favorite dynamics, people-watching while sitting on ponytown, editing skins on ponytown, and sitting with friends on the pony app.</p>
 
 <p align="center">People can enjoy aspects of a problematic piece of media or media with problematic creators without supporting the whole thing or the people behind it. I thought this was common sense.</p>
 
 <p align="center">if I'm sitting alone and my boundaries don't disclude you (e.g. if you're in the same fandom as my skin and/or you would like to sit as a ship I don't hate) PLEASE keep me company please please please I'm lonely and love cuddles and I would never bite someone who affords me that kind of simple platonic affection (friends and acquaintances get first priority, strangers please ask to sit with me unless I have open c+h before doing so since I attract weirdos and freaks sometimes 😭),</p>
 
-<p align="center">if I'm sitting with someone I probably won't move so anyone who wants to chat me will have to whisper (or just walk up and talk to me if I happen to not be afk idc)</p>
+<p align="center">if I'm sitting with someone I probably won't move so anyone who wants to int with me will have to whisper, if I'm sitting alone just walk up and talk to me if I happen to not be afk.</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/b9e834d7d868185bc2e58204d1bdf50b/f67dc2cf4a1bcd9a-9e/s400x600/ef1371ff9662bf832a4b1e2a9f41fded3fe8bdff.gifv">
