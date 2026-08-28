@@ -12,8 +12,8 @@
 <p align="center">🖋️
 <b><a href="https://pearlzas.straw.page">🎵♪ STRAWPAGE ♪🎵</a></b> •
 <a href="https://rentry.co/intandcuddlerules">int/c+h</a>
-<a href="https://github.com/pearlza">philza github</a>
-<a href="https://github.com/romaritimeflower">GI github</a>
+<a href="https://github.com/pearlza">philza</a>
+<a href="https://github.com/romaritimeflower">GI kins</a>
 <a href="https://facet.atabook.org">atabook</a>
 <a href="https://en.pronouns.page/@CapAmarav">pronouns</a> •
 <b><a href="https://rentry.co/Treatise_cEmeraldduo">The Treatise From Hell.</a></b>
