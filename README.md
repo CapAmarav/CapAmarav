@@ -7,7 +7,7 @@
   <img src="https://media1.tenor.com/m/l6zRnDwRFbcAAAAd/aether-aether-gun.gif">
 </div>
 
-<h3 align="center">“𝕊𝕠... 𝕛𝕦𝕤𝕥 𝕜𝕖𝕖𝕡 𝕒𝕚𝕞𝕚𝕟𝕘 𝕥𝕠𝕨𝕒𝕣𝕕𝕤 𝕥𝕙𝕖 𝕝𝕚𝕘𝕙𝕥.”</h3>
+<h3 align="center">“𝐬𝐨... 𝐣𝐮𝐬𝐭 𝐤𝐞𝐞𝐩 𝐚𝐢𝐦𝐢𝐧𝐠 𝐭𝐨𝐰𝐚𝐫𝐝𝐬 𝐭𝐡𝐞 𝐥𝐢𝐠𝐡𝐭.”</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlzas.straw.page">♪ STRAWPAGE ♪</a></b> •
