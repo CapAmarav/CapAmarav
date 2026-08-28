@@ -31,7 +31,7 @@
 
 <p align="center">People can enjoy aspects of a problematic piece of media or media with problematic creators without supporting the whole thing or the people behind it. I thought this was common sense. I thought not idolizing creators you know barely anything about was the fucking baseline.</p>
 
-<p align="center">if I'm sitting alone and my boundaries don't disclude you, e.g. if you're in the same fandom as my skin and/or you would like to sit as a duo I don't hate (DO NOT assume ships with me please, especially genshin fandom SHIPS DNI AT ALL), PLEASE keep me company please please please I'm lonely and love cuddles and I would never bite someone who affords me that kind of simple platonic affection (friends and acquaintances get first priority, strangers please ask to sit with me unless I have open c+h before doing so since I attract weirdos and freaks sometimes 😭)</p>
+<p align="center">if I'm sitting alone and my boundaries don't disclude you, e.g. if you're in the same fandom as my skin and/or you would like to sit as a duo I don't hate (DO NOT assume ships with me please, especially genshin fandom SHIPS DNI AT ALL), PLEASE keep me company, I have open c+h for anyone who isn't being weird to me or my friends (exceptions being as stated above, please iwc/w2i if I'm sat with Misia).</p>
 
 <p align="center">if I'm sitting with someone I probably won't move so anyone who wants to int with me will have to whisper, if I'm sitting alone just walk up and talk to me if I happen to not be afk.</p>
 
