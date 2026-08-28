@@ -1,11 +1,13 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
 </div>
-<h3 align="center">ɪɴᴋᴘᴏᴛ ɢᴏᴅꜱ - ᴛʜᴇ ᴀᴍᴀᴢɪɴɢ ᴅᴇᴠɪʟ</h3>
+<h1 align="center">“𝕁𝕦𝕤𝕥 𝕜𝕖𝕖𝕡 𝕒𝕚𝕞𝕚𝕟𝕘 𝕥𝕠𝕨𝕒𝕣𝕕𝕤 𝕥𝕙𝕖 𝕝𝕚𝕘𝕙𝕥.”</h1>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
+  <img src="https://media1.tenor.com/m/l6zRnDwRFbcAAAAd/aether-aether-gun.gif">
 </div>
+
+<h3 align="center">ᴜꜱᴇꜰᴜʟ ʟɪɴᴋꜱ ʙᴇʟᴏᴡ ɪᴅᴋ ɪ'ᴍ ɴᴏᴛ ɪɴ ᴛʜᴇ ᴍᴏᴏᴅ ᴛᴏ ꜰɪɴɪꜱʜ ɪᴛ ʀɴ</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlzas.straw.page">🎵♪ STRAWPAGE ♪🎵</a></b> •
@@ -21,8 +23,6 @@
 
 <p align="center"><I>If I'm sitting with Misia do not bother me, do not speak to me in public chat or boop me or walk on me, if Misia is with me I will be focusing on them and don't want interruptions.</I></p>
 
-***
-
 <p align="center">If you assume a family dynamic with my philza skins and are NOT Misia (the only kid I actually feel like the dad of), kindly <I>fuck off!</I> I hate c!SBI (<I>not real btw bc it was the cc's not characters</I>) bc techno is VERY NOT RELATED to philza at all and I see c!emeraldduo as queerplatonic. They are old friends and immortals and I am not interested in going against my own boundaries for a stranger. (also I hate wilbur for constantly pushing said dynamic to the point that even techno had to make a statement saying c!emduo was canonically old friends and not related)</p>
 
 ***
@@ -31,7 +31,7 @@
 
 <p align="center">People can enjoy aspects of a problematic piece of media or media with problematic creators without supporting the whole thing or the people behind it. I thought this was common sense. I thought not idolizing creators you know barely anything about was the fucking baseline.</p>
 
-<p align="center">if I'm sitting alone and my boundaries don't disclude you, e.g. if you're in the same fandom as my skin and/or you would like to sit as a duo I don't hate (DO NOT assume ships with me please), PLEASE keep me company please please please I'm lonely and love cuddles and I would never bite someone who affords me that kind of simple platonic affection (friends and acquaintances get first priority, strangers please ask to sit with me unless I have open c+h before doing so since I attract weirdos and freaks sometimes 😭)</p>
+<p align="center">if I'm sitting alone and my boundaries don't disclude you, e.g. if you're in the same fandom as my skin and/or you would like to sit as a duo I don't hate (DO NOT assume ships with me please, especially genshin fandom SHIPS DNI AT ALL), PLEASE keep me company please please please I'm lonely and love cuddles and I would never bite someone who affords me that kind of simple platonic affection (friends and acquaintances get first priority, strangers please ask to sit with me unless I have open c+h before doing so since I attract weirdos and freaks sometimes 😭)</p>
 
 <p align="center">if I'm sitting with someone I probably won't move so anyone who wants to int with me will have to whisper, if I'm sitting alone just walk up and talk to me if I happen to not be afk.</p>
 
