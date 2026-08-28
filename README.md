@@ -7,7 +7,7 @@
   <img src="https://media1.tenor.com/m/l6zRnDwRFbcAAAAd/aether-aether-gun.gif">
 </div>
 
-<h3 align="center">ᴜꜱᴇꜰᴜʟ ʟɪɴᴋꜱ ʙᴇʟᴏᴡ ɪᴅᴋ ɪ'ᴍ ɴᴏᴛ ɪɴ ᴛʜᴇ ᴍᴏᴏᴅ ᴛᴏ ꜰɪɴɪꜱʜ ɪᴛ ʀɴ</h3>
+<h3 align="center">▽ ᴜꜱᴇꜰᴜʟ ʟɪɴᴋꜱ ʙᴇʟᴏᴡ ▽</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlzas.straw.page">♪ STRAWPAGE ♪</a></b> •
