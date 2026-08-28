@@ -7,6 +7,18 @@
   <img src="https://64.media.tumblr.com/6d0310c37a6f036f5ec186179d546f91/480f3a60a3e0c711-5d/s2048x3072/43ec236aec5869b5ba88c40018ce4fffa78c6cf5.pnj">
 </div>
 
+<p align="center">🖋️
+<b><a href="https://pearlzas.straw.page">🎵♪ STRAWPAGE ♪🎵</a></b> •
+<a href="https://rentry.co/intandcuddlerules">int/c+h</a>
+<a href="https://github.com/pearlza">philza github</a>
+<a href="https://github.com/romaritimeflower">GI github</a>
+<a href="https://facet.atabook.org">atabook</a>
+<a href="https://en.pronouns.page/@CapAmarav">pronouns</a> •
+<b><a href="https://rentry.co/Treatise_cEmeraldduo">The Treatise From Hell.</a></b>
+🖋️</p>
+
+***
+
 <p align="center"><I>If I'm sitting with Misia do not bother me, do not speak to me in public chat or boop me or walk on me, if Misia is with me I will be focusing on them and don't want interruptions.</I></p>
 
 ***
