@@ -6,7 +6,6 @@
 <div align="center">
   <img src="https://media1.tenor.com/m/l6zRnDwRFbcAAAAd/aether-aether-gun.gif">
 </div>
-
 <h3 align="center">“𝐬𝐨... 𝐣𝐮𝐬𝐭 𝐤𝐞𝐞𝐩 𝐚𝐢𝐦𝐢𝐧𝐠 𝐭𝐨𝐰𝐚𝐫𝐝𝐬 𝐭𝐡𝐞 𝐥𝐢𝐠𝐡𝐭.”</h3>
 
 <p align="center">🖋️
