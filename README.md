@@ -1,7 +1,7 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
 </div>
-<h1 align="center">“𝕁𝕦𝕤𝕥 𝕜𝕖𝕖𝕡 𝕒𝕚𝕞𝕚𝕟𝕘 𝕥𝕠𝕨𝕒𝕣𝕕𝕤 𝕥𝕙𝕖 𝕝𝕚𝕘𝕙𝕥.”</h1>
+<h1 align="center">“𝕵𝖚𝖘𝖙 𝖐𝖊𝖊𝖕 𝖆𝖎𝖒𝖎𝖓𝖌 𝖙𝖔𝖜𝖆𝖗𝖉𝖘 𝖙𝖍𝖊 𝖑𝖎𝖌𝖍𝖙.”</h1>
 
 <div align="center">
   <img src="https://media1.tenor.com/m/l6zRnDwRFbcAAAAd/aether-aether-gun.gif">
@@ -10,7 +10,7 @@
 <h3 align="center">ᴜꜱᴇꜰᴜʟ ʟɪɴᴋꜱ ʙᴇʟᴏᴡ ɪᴅᴋ ɪ'ᴍ ɴᴏᴛ ɪɴ ᴛʜᴇ ᴍᴏᴏᴅ ᴛᴏ ꜰɪɴɪꜱʜ ɪᴛ ʀɴ</h3>
 
 <p align="center">🖋️
-<b><a href="https://pearlzas.straw.page">🎵♪ STRAWPAGE ♪🎵</a></b> •
+<b><a href="https://pearlzas.straw.page">♪ STRAWPAGE ♪</a></b> •
 <a href="https://rentry.co/intandcuddlerules">int/c+h</a>
 <a href="https://github.com/pearlza">philza</a>
 <a href="https://github.com/romaritimeflower">GI kins</a>
