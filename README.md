@@ -21,9 +21,9 @@
 
 ***
 
-<p align="center"><I>If I'm sitting with Misia do not bother me, do not speak to me in public chat or boop me or walk on me, if Misia is with me I will be focusing on them and don't want interruptions.</I></p>
+<p align="center"><I>If I'm sitting with Misia do not boop me or walk on me, if Misia is with me I will be focusing on them. Whisper if you want to talk to me if I am with them.</I></p>
 
-<p align="center">If you assume a family dynamic with my philza skins and are NOT Misia (the only kid I actually feel like the dad of), kindly <I>fuck off!</I> I hate c!SBI (<I>not real btw bc it was the cc's not characters</I>) bc techno is VERY NOT RELATED to philza at all and I see c!emeraldduo as queerplatonic. They are old friends and immortals and I am not interested in going against my own boundaries for a stranger. (also I hate wilbur for constantly pushing said dynamic to the point that even techno had to make a statement saying c!emduo was canonically old friends and not related)</p>
+<p align="center">If you assume a family dynamic with my philza skins and are NOT Misia (the only kid I actually feel like the dad of), kindly <I>fuck off!</I> I hate c!SBI (<I>not real btw bc it was the cc's not characters</I>) bc techno is VERY NOT RELATED to philza at all and I see c!emeraldduo as queerplatonic. They are old friends and immortals and I am not interested in going against my own boundaries for a stranger. (also I hate wilbur for constantly pushing said dynamic to the point that even techno had to make a statement saying c!emduo was canonically old friends, NOT related)</p>
 
 ***
 
