@@ -1,13 +1,13 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
 </div>
-<h1 align="center">“𝕵𝖚𝖘𝖙 𝖐𝖊𝖊𝖕 𝖆𝖎𝖒𝖎𝖓𝖌 𝖙𝖔𝖜𝖆𝖗𝖉𝖘 𝖙𝖍𝖊 𝖑𝖎𝖌𝖍𝖙.”</h1>
+<h1 align="center">“𝔅𝔲𝔱 𝔞𝔱 𝔩𝔢𝔞𝔰𝔱 𝔶𝔬𝔲'𝔳𝔢 𝔤𝔬𝔱 𝔭𝔢𝔬𝔭𝔩𝔢 𝔥𝔢𝔯𝔢 𝔱𝔬 𝔥𝔢𝔩𝔭 𝔰𝔱𝔢𝔢𝔯 𝔶𝔬𝔲 𝔞𝔴𝔞𝔶 𝔣𝔯𝔬𝔪 𝔱𝔥𝔢 𝔴𝔯𝔬𝔫𝔤 𝔭𝔞𝔱𝔥.”</h1>
 
 <div align="center">
   <img src="https://media1.tenor.com/m/l6zRnDwRFbcAAAAd/aether-aether-gun.gif">
 </div>
 
-<h3 align="center">▽ ᴜꜱᴇꜰᴜʟ ʟɪɴᴋꜱ ʙᴇʟᴏᴡ ▽</h3>
+<h3 align="center">“𝕊𝕠... 𝕛𝕦𝕤𝕥 𝕜𝕖𝕖𝕡 𝕒𝕚𝕞𝕚𝕟𝕘 𝕥𝕠𝕨𝕒𝕣𝕕𝕤 𝕥𝕙𝕖 𝕝𝕚𝕘𝕙𝕥.”</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlzas.straw.page">♪ STRAWPAGE ♪</a></b> •
