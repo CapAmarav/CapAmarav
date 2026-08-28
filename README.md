@@ -35,9 +35,15 @@
 
 <p align="center">if I'm sitting with someone I probably won't move so anyone who wants to int with me will have to whisper, if I'm sitting alone just walk up and talk to me if I happen to not be afk.</p>
 
+***
+
+<h3 align="center">𝓛𝓲𝓯𝓮 𝓲𝓼 𝓪 𝓵𝓲𝓽𝓽𝓵𝓮 𝓵𝓮𝓼𝓼 𝓱𝓸𝓹𝓮𝓵𝓮𝓼𝓼 𝓪𝓼 𝓵𝓸𝓷𝓰 𝓪𝓼 𝔂𝓸𝓾 𝓮𝔁𝓲𝓼𝓽.</h3>
+
 <div align="center">
   <img src="https://64.media.tumblr.com/b9e834d7d868185bc2e58204d1bdf50b/f67dc2cf4a1bcd9a-9e/s400x600/ef1371ff9662bf832a4b1e2a9f41fded3fe8bdff.gifv">
 </div>
+
+<h3 align="center">𝓘 𝔀𝓲𝓼𝓱 𝓘 𝓬𝓸𝓾𝓵𝓭 𝓹𝓻𝓸𝓽𝓮𝓬𝓽 𝔂𝓸𝓾 𝓯𝓻𝓸𝓶 𝓪𝓵𝓵 𝓽𝓱𝓲𝓼 𝓹𝓪𝓲𝓷.</h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/484468f9193805f8add74dd6c47a7926/42c48bd6dd080535-a2/s2048x3072/f7bf8b3c81761abb993b7475c776d7d947c73e0c.pnj">
