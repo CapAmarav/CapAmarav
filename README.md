@@ -1,7 +1,7 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
 </div>
-<h1 align="center">“𝔜𝔬𝔲'𝔳𝔢 𝔤𝔬𝔱 𝔭𝔢𝔬𝔭𝔩𝔢 𝔥𝔢𝔯𝔢 𝔱𝔬 𝔥𝔢𝔩𝔭 𝔰𝔱𝔢𝔢𝔯 𝔶𝔬𝔲 𝔞𝔴𝔞𝔶 𝔣𝔯𝔬𝔪 𝔱𝔥𝔢 𝔴𝔯𝔬𝔫𝔤 𝔭𝔞𝔱𝔥.”</h1>
+<h2 align="center">“𝔅𝔲𝔱 𝔞𝔱 𝔩𝔢𝔞𝔰𝔱 𝔶𝔬𝔲'𝔳𝔢 𝔤𝔬𝔱 𝔭𝔢𝔬𝔭𝔩𝔢 𝔥𝔢𝔯𝔢 𝔱𝔬 𝔥𝔢𝔩𝔭 𝔰𝔱𝔢𝔢𝔯 𝔶𝔬𝔲 𝔞𝔴𝔞𝔶 𝔣𝔯𝔬𝔪 𝔱𝔥𝔢 𝔴𝔯𝔬𝔫𝔤 𝔭𝔞𝔱𝔥.”</h2>
 
 <div align="center">
   <img src="https://media1.tenor.com/m/l6zRnDwRFbcAAAAd/aether-aether-gun.gif">
