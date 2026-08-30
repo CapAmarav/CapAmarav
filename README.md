@@ -4,7 +4,7 @@
 <h2 align="center">“𝔅𝔲𝔱 𝔞𝔱 𝔩𝔢𝔞𝔰𝔱 𝔶𝔬𝔲'𝔳𝔢 𝔤𝔬𝔱 𝔭𝔢𝔬𝔭𝔩𝔢 𝔥𝔢𝔯𝔢 𝔱𝔬 𝔥𝔢𝔩𝔭 𝔰𝔱𝔢𝔢𝔯 𝔶𝔬𝔲 𝔞𝔴𝔞𝔶 𝔣𝔯𝔬𝔪 𝔱𝔥𝔢 𝔴𝔯𝔬𝔫𝔤 𝔭𝔞𝔱𝔥.”</h2>
 
 <div align="center">
-  <img src="https://media1.tenor.com/m/l6zRnDwRFbcAAAAd/aether-aether-gun.gif">
+  <img src="https://64.media.tumblr.com/e0c8e58fe625d58cdaf2dc3e49e2eb81/7f68e2ff57e10734-ed/s640x960/a9c33ac85b3dd67dadbd178caeff03b8a3d4494e.jpg">
 </div>
 <h3 align="center">“𝐬𝐨... 𝐣𝐮𝐬𝐭 𝐤𝐞𝐞𝐩 𝐚𝐢𝐦𝐢𝐧𝐠 𝐭𝐨𝐰𝐚𝐫𝐝𝐬 𝐭𝐡𝐞 𝐥𝐢𝐠𝐡𝐭.”</h3>
 
