@@ -22,6 +22,10 @@
 
 <p align="center"><I>If I'm sitting with Misia do not boop me or walk on me, if Misia is with me I will be focusing on them. Whisper if you want to talk to me if I am with them.</I></p>
 
+<p align="center">Read the int/c+h rules before sitting with me as a genshin character, I have had too many people ignore my boundaries for their fuckass ships.</p>
+
+***
+
 <p align="center">If you assume a family dynamic with my philza skins and are NOT Misia (the only kid I actually feel like the dad of), kindly <I>fuck off!</I> I hate c!SBI (<I>not real btw bc it was the CCs not characters</I>) bc techno is VERY NOT RELATED to philza at all and I see c!emeraldduo as queerplatonic. They are old friends and immortals and I am not interested in going against my own boundaries for a stranger. (also I hate wilbur for constantly pushing said dynamic to the point that even techno had to make a statement saying c!emduo was canonically old friends, NOT related)</p>
 
 ***
@@ -30,7 +34,7 @@
 
 <p align="center">People can enjoy aspects of a problematic piece of media or media with problematic creators without supporting the whole thing or the people behind it. I thought this was common sense. I thought not idolizing creators you know barely anything about was the fucking baseline.</p>
 
-<p align="center">if I'm sitting alone and my boundaries don't disclude you, e.g. if you're in the same fandom as my skin and/or you would like to sit as a duo I don't hate (DO NOT assume ships with me please, especially genshin fandom SHIPS DNI AT ALL), PLEASE keep me company, I have open c+h for anyone who isn't being weird to me or my friends (exceptions being as stated above, please iwc/w2i if I'm sat with Misia).</p>
+<p align="center">if I'm sitting alone and my boundaries don't disclude you, e.g. if you're in the same fandom as my skin and/or you would like to sit as a duo I don't hate pls c+h (DO NOT assume ships with me please, especially genshin fandom bc you people are notorious for ignoring ship-related boundaries specifically), I have open c+h for anyone who isn't being weird to me or my friends (exceptions being as stated above, please iwc/w2i if I'm sat with Misia).</p>
 
 <p align="center">if I'm sitting with someone I probably won't move so anyone who wants to int with me will have to whisper, if I'm sitting alone just walk up and talk to me if I happen to not be afk.</p>
 
