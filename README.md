@@ -22,7 +22,7 @@
 
 <p align="center"><I>If I'm sitting with Misia do not boop me or walk on me, if Misia is with me I will be focusing on them. Whisper if you want to talk to me if I am with them.</I></p>
 
-<p align="center">Read the int/c+h rules before sitting with me as a genshin character, I have had too many people ignore my boundaries for their fuckass ships.<br/>
+<p align="center">Read the int/c+h rules before sitting with me as a genshin character, I have had too many people ignore my boundaries for ships.<br/>
 <i>Any</i> ship with scara in it dni. So many people think just bc I'm in a scara skin gives them the right to be super weird and creepy to me. <i>PLEASE</i> fuck off.<br/>
 The <i>only</i> skin I'd be fine with ships in is vodyanitsa because the fandom hasn't fucking harassed me into the ground yet for ships of her <i>bc I literally just made her</i>.</p>
 
