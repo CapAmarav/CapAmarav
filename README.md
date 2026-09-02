@@ -6,7 +6,7 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/64b911c786d4e7a26975bd7863f5c857/c7e60708b95931d0-2f/s500x750/a2b2369f2fc2b925b340ce5c3c15f737c8a70b58.pnj">
 </div>
-<h3 align="center">“𝐬𝐨... 𝐣𝐮𝐬𝐭 𝐤𝐞𝐞𝐩 𝐚𝐢𝐦𝐢𝐧𝐠 𝐭𝐨𝐰𝐚𝐫𝐝𝐬 𝐭𝐡𝐞 𝐥𝐢𝐠𝐡𝐭.”</h3>
+<h3 align="center">“𝐒𝐨... 𝐣𝐮𝐬𝐭 𝐤𝐞𝐞𝐩 𝐚𝐢𝐦𝐢𝐧𝐠 𝐭𝐨𝐰𝐚𝐫𝐝𝐬 𝐭𝐡𝐞 𝐥𝐢𝐠𝐡𝐭.”</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlzas.straw.page">♪ STRAWPAGE ♪</a></b> •
