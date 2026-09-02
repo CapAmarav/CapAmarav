@@ -26,6 +26,8 @@
 <i>Any</i> ship with scara in it dni. So many people think just bc I'm in a scara skin gives them the right to be super weird and creepy to me. <i>PLEASE</i> fuck off.<br/>
 The <i>only</i> skin I'd be fine with ships in is vodyanitsa because the fandom hasn't fucking harassed me into the ground yet for ships of her <i>bc I literally just made her</i>.</p>
 
+<p align="center">Tutorial skins dni btw, y'all ugly and have no creativity.</p>
+
 ***
 
 <p align="center">If you assume a family dynamic with my philza skins and are NOT Misia (the only kid I actually feel like the dad of), kindly <I>fuck off!</I> I hate c!SBI (<I>not real btw bc it was the CCs not characters</I>) bc techno is VERY NOT RELATED to philza at all and I see c!emeraldduo as queerplatonic. They are old friends and immortals and I am not interested in going against my own boundaries for a stranger. (also I hate wilbur for constantly pushing said dynamic to the point that even techno had to make a statement saying c!emduo was canonically old friends, NOT related)</p>
