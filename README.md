@@ -44,7 +44,7 @@ The <i>only</i> skin I'd be fine with ships in is vodyanitsa because the fandom 
 
 ***
 
-<p align="center">I'm not interested in being a footnote in anyone's story. I'm tired of being the backup, the second choice, the one people fall to when things go to shit. When will someone support me and be everything I need? I can't be everything for anyone else anymore.<br/>
+<p align="center">I'm not interested in being a mere footnote in anyone's story. I'm tired of being the backup, the 'safe' choice, the one people put their entire weight on when things go to shit. When will someone support <i>me</i> and be everything <i>I</i> need? I can't be everything for anyone else anymore.<br/>
 〘<I> 𝐈 𝐜𝐚𝐧'𝐭.</I> 𝐈'𝐯𝐞 𝐚𝐥𝐫𝐞𝐚𝐝𝐲 𝐛𝐞𝐞𝐧 "𝐮𝐬𝐞𝐝 𝐮𝐩." 〙</p>
 
 <div align="center">
