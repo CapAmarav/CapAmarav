@@ -1,12 +1,12 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
 </div>
-<h2 align="center">“𝔅𝔲𝔱 𝔞𝔱 𝔩𝔢𝔞𝔰𝔱 𝔶𝔬𝔲'𝔳𝔢 𝔤𝔬𝔱 𝔭𝔢𝔬𝔭𝔩𝔢 𝔥𝔢𝔯𝔢 𝔱𝔬 𝔥𝔢𝔩𝔭 𝔰𝔱𝔢𝔢𝔯 𝔶𝔬𝔲 𝔞𝔴𝔞𝔶 𝔣𝔯𝔬𝔪 𝔱𝔥𝔢 𝔴𝔯𝔬𝔫𝔤 𝔭𝔞𝔱𝔥.”</h2>
+<h2 align="center">“𝐘𝐨𝐮 𝐡𝐚𝐯𝐞 𝐭𝐰𝐨 𝐜𝐡𝐨𝐢𝐜𝐞𝐬.”</h2>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/64b911c786d4e7a26975bd7863f5c857/c7e60708b95931d0-2f/s500x750/a2b2369f2fc2b925b340ce5c3c15f737c8a70b58.pnj">
 </div>
-<h3 align="center">“𝐒𝐨... 𝐣𝐮𝐬𝐭 𝐤𝐞𝐞𝐩 𝐚𝐢𝐦𝐢𝐧𝐠 𝐭𝐨𝐰𝐚𝐫𝐝𝐬 𝐭𝐡𝐞 𝐥𝐢𝐠𝐡𝐭.”</h3>
+<h3 align="center">“𝐄𝐢𝐭𝐡𝐞𝐫 𝐠𝐢𝐯𝐞 𝐮𝐩, 𝐨𝐫 <I>𝐜𝐡𝐚𝐧𝐠𝐞</I>.”</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlzas.straw.page">♪ STRAWPAGE ♪</a></b> •
