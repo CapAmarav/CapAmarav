@@ -4,9 +4,9 @@
 <h2 align="center">“𝐘𝐨𝐮 𝐡𝐚𝐯𝐞 𝐭𝐰𝐨 𝐜𝐡𝐨𝐢𝐜𝐞𝐬.”</h2>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/64b911c786d4e7a26975bd7863f5c857/c7e60708b95931d0-2f/s500x750/a2b2369f2fc2b925b340ce5c3c15f737c8a70b58.pnj">
+  <img src="https://64.media.tumblr.com/64b911c786d4e7a26975bd7863f5c857/c7e60708b95931d0-2f/s500x750/a2b2369f2fc2b925b340ce5c3c15f737c8a70b58.pnj"><br/>
+<h3>“𝐄𝐢𝐭𝐡𝐞𝐫 𝐠𝐢𝐯𝐞 𝐮𝐩, 𝐨𝐫 <I>𝐜𝐡𝐚𝐧𝐠𝐞</I>.”</h3>
 </div>
-<h3 align="center">“𝐄𝐢𝐭𝐡𝐞𝐫 𝐠𝐢𝐯𝐞 𝐮𝐩, 𝐨𝐫 <I>𝐜𝐡𝐚𝐧𝐠𝐞</I>.”</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlzas.straw.page">♪ STRAWPAGE ♪</a></b> •
