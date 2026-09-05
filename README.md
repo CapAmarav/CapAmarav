@@ -54,3 +54,5 @@ The <i>only</i> skin I'd be fine with ships in is vodyanitsa because the fandom 
 <div align="center">
   <img src="https://64.media.tumblr.com/484468f9193805f8add74dd6c47a7926/42c48bd6dd080535-a2/s2048x3072/f7bf8b3c81761abb993b7475c776d7d947c73e0c.pnj">
 </div>
+
+![](https://komarev.com/ghpvc/?username=CapAmarav&color=00008b&base=130&label=nerds)
