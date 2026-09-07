@@ -51,7 +51,10 @@ The <i>only</i> skin I'd be fine with ships in is vodyanitsa because the fandom 
   <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExYWF5aXlmNHc2czF3b3VwNXdicTltMDV0aDBnczhuZzdtZzZlbTJhMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/emR9Yj3KKFNggwXoQm/giphy.gif">
 </div>
 
-<p align="center">I am the good that was discarded. The angel that was used. I am tired of being a convenient, low maintenance commodity for people. I require more than the bare minimum now.</p>
+<p align="center">I am the good that was discarded. The <i>angel</i> that was used.<br/>
+I am tired of being a convenient, low maintenance commodity for people.<br/>
+I am not a recycling bin for your trauma.<br/>
+I require more than the bare minimum.</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/484468f9193805f8add74dd6c47a7926/42c48bd6dd080535-a2/s2048x3072/f7bf8b3c81761abb993b7475c776d7d947c73e0c.pnj">
