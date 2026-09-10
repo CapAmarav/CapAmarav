@@ -9,7 +9,7 @@
 </div>
 
 <p align="center">🖋️
-<b><a href="https://pearlzas.straw.page">♪ STRAWPAGE ♪</a></b> •
+<b><a href="https://pearlza.straw.page">♪ STRAWPAGE ♪</a></b> •
 <a href="https://rentry.co/intandcuddlerules">int/c+h</a>
 <a href="https://github.com/pearlza">philza</a>
 <a href="https://rentry.co/hydrofreminet">freminet</a>
