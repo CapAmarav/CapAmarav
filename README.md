@@ -1,11 +1,16 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
 </div>
-<h2 align="center">“𝐘𝐨𝐮 𝐡𝐚𝐯𝐞 𝐭𝐰𝐨 𝐜𝐡𝐨𝐢𝐜𝐞𝐬.”</h2>
+<div align="center">
+  <img src="https://64.media.tumblr.com/cd8e565e449a42aab856b8ab497df0af/06cfa1b0e3ec38dd-33/s2048x3072/eb465fe35ef1f554c42c8fe50dbb7ef1539c24f9.pnj">
+</div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/64b911c786d4e7a26975bd7863f5c857/c7e60708b95931d0-2f/s500x750/a2b2369f2fc2b925b340ce5c3c15f737c8a70b58.pnj"><br/>
-<h3>“𝐄𝐢𝐭𝐡𝐞𝐫 𝐠𝐢𝐯𝐞 𝐮𝐩, 𝐨𝐫 <I>𝐜𝐡𝐚𝐧𝐠𝐞</I>.”</h3>
+  <img src="https://64.media.tumblr.com/76056038e9805f0df1c51afe46d73b94/fa8b11421004f694-c8/s400x600/3bce4da5ff10ceac6c3dd3008b3c202554ac7b46.jpg">
+</div>
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/cd8e565e449a42aab856b8ab497df0af/06cfa1b0e3ec38dd-33/s2048x3072/eb465fe35ef1f554c42c8fe50dbb7ef1539c24f9.pnj">
 </div>
 
 <p align="center">🖋️
