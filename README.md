@@ -1,14 +1,9 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/17de27e90a1b21ca88f09bd504f5aff1/6c6c4db3653a0d4b-7e/s1280x1920/cecae1b5247a31c1b1fbd4c94f9243739e33047a.gifv">
-</div>
-<div align="center">
   <img src="https://64.media.tumblr.com/cd8e565e449a42aab856b8ab497df0af/06cfa1b0e3ec38dd-33/s2048x3072/eb465fe35ef1f554c42c8fe50dbb7ef1539c24f9.pnj">
 </div>
-
 <div align="center">
-  <img src="https://64.media.tumblr.com/76056038e9805f0df1c51afe46d73b94/fa8b11421004f694-c8/s400x600/3bce4da5ff10ceac6c3dd3008b3c202554ac7b46.jpg">
+  <img src="https://i0.wp.com/www.cobaltjade.com/wp-content/uploads/2022/06/206246-e1661382126739.jpg?resize=400%2C313">
 </div>
-
 <div align="center">
   <img src="https://64.media.tumblr.com/cd8e565e449a42aab856b8ab497df0af/06cfa1b0e3ec38dd-33/s2048x3072/eb465fe35ef1f554c42c8fe50dbb7ef1539c24f9.pnj">
 </div>
@@ -52,8 +47,7 @@
 
 ***
 
-<p align="center">I'm not not sure if I'm important enough in anyone's world to be remembered with fondness or care. I'm tired of being the backup, the 'safe' choice, the one people put their entire weight on when things go to shit. When will someone support <i>me</i> and be everything <i>I</i> need? I can't be everything for anyone else anymore.<br/>
-〘<I> 𝐈 𝐜𝐚𝐧'𝐭.</I> 𝐈'𝐯𝐞 𝐚𝐥𝐫𝐞𝐚𝐝𝐲 𝐛𝐞𝐞𝐧 "𝐮𝐬𝐞𝐝 𝐮𝐩." 〙</p>
+<p align="center">I'm not not sure if I'm important enough in anyone's world to be remembered with fondness or care. I'm tired of being the backup, the 'safe' choice, the one people put their entire weight on when things go to shit. When will someone support <i>me</i> and be everything <i>I</i> need? I can't be everything for anyone else anymore.</p>
 
 <div align="center">
   <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExYWF5aXlmNHc2czF3b3VwNXdicTltMDV0aDBnczhuZzdtZzZlbTJhMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/emR9Yj3KKFNggwXoQm/giphy.gif">
