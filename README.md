@@ -1,12 +1,8 @@
-<div align="center">
-  <img src="https://64.media.tumblr.com/cd8e565e449a42aab856b8ab497df0af/06cfa1b0e3ec38dd-33/s2048x3072/eb465fe35ef1f554c42c8fe50dbb7ef1539c24f9.pnj">
-</div>
+<h1 align="center">ᚬᛘᛆ ᛬ ᚴᚱᛆᚴᚢᚢᛆᚴᛁᚢᚦ ᛬ ᚢᚱ ᛬ ᛘᚢᚱᚴᚢᛘ</h1>
 <div align="center">
   <img src="https://i0.wp.com/www.cobaltjade.com/wp-content/uploads/2022/06/206246-e1661382126739.jpg?resize=400%2C313">
 </div>
-<div align="center">
-  <img src="https://64.media.tumblr.com/cd8e565e449a42aab856b8ab497df0af/06cfa1b0e3ec38dd-33/s2048x3072/eb465fe35ef1f554c42c8fe50dbb7ef1539c24f9.pnj">
-</div>
+<h3 align="center">ᚠᛁᛚ ᛬ ᚴᚱᛅᚴᚢᚢᛅᚾᚴᚱ ᛬ ᚢᚱ ᛬ ᛘᚢᚱᚴᚢᛘ</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlza.straw.page">♪ STRAWPAGE ♪</a></b> •
