@@ -19,7 +19,7 @@
 ***
 
 <p align="center"><I>If I'm sitting with Misia do not boop or walk on or interrupt me, I will be focusing on Misia. W2I if I am with them.</I><br/>
-I am dead serious; I wanted a more fem/androgynous name, shortened a name I used to use that I don't go by online anymore, and <I>my new name apparently means father in Misia's language, and it's pronounced the exact same way I say it.</I> I'm not the type to believe in fate, but this is like a cosmic level validation of my very soul. We're on the same wavelength in every way that matters.</p>
+I am dead serious; I wanted a more fem/androgynous name, shortened a name I used to use that I don't go by online anymore, and <I>my new name apparently means father in Misia's language, and it is pronounced basically the same</I>, though I put stress on the first syllable and not the second. I'm not the type to believe in fate, but this is like a cosmic level validation of my very soul. We're on the same wavelength in every way that matters.</p>
 
 <p align="center">Read the int/c+h rules before sitting with me as a genshin character, I have had too many people ignore my boundaries for ships.<br/>
 <i>Any</i> ship with scara in it dni. So many people think just bc I'm in a scara skin gives them the right to be super weird and creepy to me. <i>PLEASE</i> fuck off.</p>
