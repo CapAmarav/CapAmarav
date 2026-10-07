@@ -1,8 +1,8 @@
-<h1 align="center">ᚬᛘᛆ ᛬ ᚴᚱᛆᚴᚢᚢᛆᚴᛁᚢᚦ ᛬ ᚢᚱ ᛬ ᛘᚢᚱᚴᚢᛘ</h1>
+<h1 align="center">$\color{#ebe6d9}{\textsf{ᚬᛘᛆ ᛬ ᚴᚱᛆᚴᚢᚢᛆᚴᛁᚢᚦ ᛬ ᚢᚱ ᛬ ᛘᚢᚱᚴᚢᛘ}}$</h1>
 <div align="center">
   <img src="https://i0.wp.com/www.cobaltjade.com/wp-content/uploads/2022/06/206246-e1661382126739.jpg?resize=400%2C313">
 </div>
-<h3 align="center">ᚠᛁᛚ ᛬ ᚴᚱᛅᚴᚢᚢᛅᚾᚴᚱ ᛬ ᚢᚱ ᛬ ᛘᚢᚱᚴᚢᛘ</h3>
+<h3 align="center">$\color{#ebe6d9}{\textsf{ᚠᛁᛚ ᛬ ᚴᚱᛅᚴᚢᚢᛅᚾᚴᚱ ᛬ ᚢᚱ ᛬ ᛘᚢᚱᚴᚢᛘ}}$</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlza.straw.page">♪ STRAWPAGE ♪</a></b> •
