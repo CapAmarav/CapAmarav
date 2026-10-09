@@ -2,7 +2,7 @@
 <div align="center">
   <img src="https://i0.wp.com/www.cobaltjade.com/wp-content/uploads/2022/06/206246-e1661382126739.jpg?resize=400%2C313">
 </div>
-<h3 align="center">$\color{#ebe6d9}{\textsf{𓄿 ama:androgyne and philza:ftm 𓅓}}$</h3>
+<h3 align="center">$\color{#ebe6d9}{\textsf{𓄿 ama:androgyne αnd phil:ftm 𓅓}}$</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlza.straw.page">♪ STRAWPAGE ♪</a></b> •
