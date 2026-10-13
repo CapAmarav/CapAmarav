@@ -19,14 +19,15 @@
 <p align="center"><I>If I'm sitting with Misia do not boop or walk on or interrupt me, I will be focusing on Misia. W2I if I am with them.</I><br/>
 I am dead serious; I wanted a more fem/androgynous name, shortened a name I used to use that I don't go by online anymore, and <I>my new name apparently means father in Misia's language, and it is pronounced basically the same</I>, though I put stress on the first syllable and not the second. I'm not the type to believe in fate, but this is like a cosmic level validation of my very soul. We're on the same wavelength in every way that matters.</p>
 
-<p align="center">Read the int/c+h rules before sitting with me as a genshin character, I have had too many people ignore my boundaries for ships.<br/>
-I rarely use any of my multiple scara skins bc of this. <i>PLEASE</i> fuck off.</p>
-
-<p align="center">Tutorial skins dni btw, y'all ugly and have no creativity.</p>
+<p align="center">Read the int/c+h rules before sitting with me..</p>
 
 ***
 
-<p align="center">If you assume a family dynamic with my philza skins and are NOT Misia (the only kid I actually feel like the dad of), kindly <I>fuck off!</I> I hate c!SBI (<I>not real btw bc it was the CCs not characters</I>) bc techno is VERY NOT RELATED to philza at all and I see c!emeraldduo as queerplatonic. They are old friends and immortals and I am not interested in going against my own boundaries for a stranger. (also I hate wilbur for constantly pushing said dynamic to the point that even techno had to make a statement saying c!emduo was canonically old friends, NOT related)</p>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
 
 ***
 
