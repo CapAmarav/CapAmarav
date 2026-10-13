@@ -19,8 +19,6 @@
 <p align="center"><I>If I'm sitting with Misia do not boop or walk on or interrupt me, I will be focusing on Misia. W2I if I am with them.</I><br/>
 I am dead serious; I wanted a more fem/androgynous name, shortened a name I used to use that I don't go by online anymore, and <I>my new name apparently means father in Misia's language, and it is pronounced basically the same</I>, though I put stress on the first syllable and not the second. I'm not the type to believe in fate, but this is like a cosmic level validation of my very soul. We're on the same wavelength in every way that matters.</p>
 
-<p align="center">Read the int/c+h rules before sitting with me..</p>
-
 ***
 
 <p align="center">
@@ -33,7 +31,7 @@ I am dead serious; I wanted a more fem/androgynous name, shortened a name I used
 
 <p align="center">I identify with crows, black cats, white stags, and fire breathing dragons.</p>
 
-<p align="center">Hobbies include watching youtube videos, listening to music, playing sky:cotl, playing genshin, brainstorming headcanons and scenarios for my favorite dynamics, people-watching while sitting on ponytown, editing skins on ponytown, and sitting with friends on the pony app.</p>
+<p align="center">Hobbies include watching youtube videos, listening to music, playing genshin, playing sky:cotl, brainstorming headcanons and scenarios for my favorite dynamics, people-watching while sitting on ponytown, editing skins on ponytown, and sitting with friends on the pony app.</p>
 
 <p align="center">People can enjoy aspects of a problematic piece of media or media with problematic creators without supporting the whole thing or the people behind it. I thought this was common sense. I thought not idolizing creators you know barely anything about was the fucking baseline.</p>
 
