@@ -38,8 +38,7 @@ I am dead serious; I wanted a more fem/androgynous name, shortened a name I used
 
 ***
 
-<p align="center">I'm tired of being the backup, the 'safe' choice, the one people put their entire weight on when things go to shit.<br/>
-When will someone support <i>me</i> and be everything <i>I</i> need? I can't be everything for anyone else anymore.</p>
+<h3 align="center"><I>“𝐈 𝐰𝐨𝐧𝐝𝐞𝐫 𝐢𝐟 𝐲𝐨𝐮𝐫 𝐭𝐡𝐞𝐫𝐚𝐩𝐢𝐬𝐭 𝐤𝐧𝐨𝐰𝐬 𝐞𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞?”</I></h3>
 
 <div align="center">
   <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExYWF5aXlmNHc2czF3b3VwNXdicTltMDV0aDBnczhuZzdtZzZlbTJhMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/emR9Yj3KKFNggwXoQm/giphy.gif">
