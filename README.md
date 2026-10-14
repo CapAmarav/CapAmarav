@@ -22,8 +22,8 @@ I am dead serious; I wanted a more fem/androgynous name, shortened a name I used
 ***
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&cover_image=false&theme=default&show_offline=false&background_color=181934&interchange=true&profanity=false&hide_remaster=false">
   </a>
 </p>
 
