@@ -16,16 +16,13 @@
 
 ***
 
-<p align="center"><I>If I'm sitting with Misia do not boop or walk on or interrupt me, I will be focusing on Misia. W2I if I am with them.</I><br/>
-I am dead serious; I wanted a more fem/androgynous name, shortened a name I used to use that I don't go by online anymore, and <I>my new name apparently means father in Misia's language, and it is pronounced basically the same</I>, though I put stress on the first syllable and not the second. I'm not the type to believe in fate, but this is like a cosmic level validation of my very soul. We're on the same wavelength in every way that matters.</p>
-
-***
-
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&cover_image=false&theme=default&show_offline=false&background_color=181934&interchange=true&profanity=false&hide_remaster=false">
   </a>
-</p>
+<br/>
+<I>If I'm sitting with Misia do not boop or walk on or interrupt me, I will be focusing on Misia. W2I if I am with them.</I><br/>
+I am dead serious; I wanted a more fem/androgynous name, shortened a name I used to use that I don't go by online anymore, and <I>my new name apparently means father in Misia's language, and it is pronounced basically the same</I>, though I put stress on the first syllable and not the second. I'm not the type to believe in fate, but this is like a cosmic level validation of my very soul. We're on the same wavelength in every way that matters.</p>
 
 ***
 
