@@ -18,7 +18,7 @@
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&cover_image=true&theme=default&show_offline=false&background_color=161231&interchange=true&profanity=false&hide_remaster=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=savannahcat91&cover_image=true&theme=default&show_offline=false&background_color=161231&interchange=true&profanity=false&hide_remaster=false&bar_color_cover=true">
   </a>
 <br/>
 <I>If I'm sitting with Misia do not boop or walk on or interrupt me, I will be focusing on Misia. W2I if I am with them.</I><br/>
