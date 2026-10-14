@@ -26,7 +26,7 @@ I am dead serious; I wanted a more fem/androgynous name, shortened a name I used
 
 ***
 
-<p align="center">I identify with crows, black cats, white stags, and fire breathing dragons.</p>
+<p align="center">I identify with crows, black cats/antisocial cats in general, white stags/deer with antlers, and fire breathing dragons.</p>
 
 <p align="center">Hobbies include watching youtube videos, listening to music, playing genshin, playing sky:cotl, brainstorming headcanons and scenarios for my favorite dynamics, people-watching while sitting on ponytown, editing skins on ponytown, and sitting with friends on the pony app.</p>
 
