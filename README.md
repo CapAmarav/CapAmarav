@@ -45,8 +45,7 @@ I am dead serious; I wanted a more fem/androgynous name, shortened a name I used
   <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExYWF5aXlmNHc2czF3b3VwNXdicTltMDV0aDBnczhuZzdtZzZlbTJhMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/emR9Yj3KKFNggwXoQm/giphy.gif">
 </div>
 
-<h3 align="center">『 𝖄𝖔𝖚 𝖉𝖔𝖓'𝖙 𝖔𝖜𝖓 𝖒𝖊 』<br/>
-『 𝖄𝖔𝖚 𝖉𝖔𝖓'𝖙 𝖊𝖛𝖊𝖓 𝖐𝖓𝖔𝖜 𝖒𝖊 』</h3>
+<h3 align="center">『 𝕿𝖍𝖊 𝖑𝖆𝖘𝖙 𝖙𝖔 𝖋𝖆𝖑𝖑. 』</h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/484468f9193805f8add74dd6c47a7926/42c48bd6dd080535-a2/s2048x3072/f7bf8b3c81761abb993b7475c776d7d947c73e0c.pnj">
