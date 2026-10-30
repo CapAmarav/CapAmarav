@@ -2,7 +2,7 @@
 <div align="center">
   <img src="https://i0.wp.com/www.cobaltjade.com/wp-content/uploads/2022/06/206246-e1661382126739.jpg?resize=400%2C313">
 </div>
-<h3 align="center">$\color{#ebe6d9}{\textsf{If you found me through my omegaverse tumblr blog no you didn't}}$</h3>
+<h3 align="center">$\color{#ebe6d9}{\textsf{If you found me through my other github no you didn't}}$</h3>
 
 <p align="center">🖋️
 <b><a href="https://pearlza.straw.page">♪ STRAWPAGE ♪</a></b> •
